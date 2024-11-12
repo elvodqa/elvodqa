@@ -1,1 +1,1 @@
-I hate every "programmer"
+The best programmer
